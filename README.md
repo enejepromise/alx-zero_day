@@ -1,1 +1,1 @@
-Alx program is not for the weak
+The projects are very helpful
